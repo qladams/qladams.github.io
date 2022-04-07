@@ -1,1 +1,0 @@
-# qladams.github.io
